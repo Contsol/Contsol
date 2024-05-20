@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Contsol
+- 👋 Hi, I’m Cathal, I am a specialist Tech recruiter, that helps start ups scale their engineering teams 🚀
 - 👀 I’m interested in networking with software engineers to help them find new roles..
 - 📫 How to reach me cathal@continuoussolutions.ai / +1917-720-3391
 - ⚡ Fun fact: Iam Irish ☘️
